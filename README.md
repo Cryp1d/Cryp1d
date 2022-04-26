@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [Pornhub.com](Pornhub.com)
 
-- Reach my on my twitter **Twitter/Potus**
+- Reach me on my twitter **www.Twitter/Potus**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
